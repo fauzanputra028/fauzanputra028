@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hallo everyone! I'm Fauzanputra028 👋
 
 <!--
 **fauzanputra028/fauzanputra028** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
