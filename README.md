@@ -26,3 +26,5 @@ I am a 3rd semester Informatics Engineering student at Muhammadiyah University o
 
 ##### Connect with me
 ![https://instagram.com/fauzanputra028](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white) ![https://x.com/fauzanputra028](https://img.shields.io/badge/X-000000?style=for-the-badge&logo=x&logoColor=white) 
+
+![Moshi](https://media1.tenor.com/m/TzZnzcAdKHAAAAAd/elin-jkt48-elin-jeketi.gif)
